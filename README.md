@@ -3,7 +3,7 @@
 Hi,I am Memonul Islam Tuhin.I am Node.js Backend Developer | AI Automation Expert | AI Assistant Setup & Integration | JavaScript |  Building APIs & Smart Automation Solutions.
 
 # 💫 About Me:
-🔭 I’m currently working on Node.js Backend Developer | AI Automation Expert | AI Assistant Setup & Integration | JavaScript |  Building APIs & Smart Automation Solutions.<br>🌱 I’m currently learning JavaScript.<br>👯 I’m looking to collaborate on GitHub.<br>🤔 I’m looking for help with full free to tell me anything—whether it’s a question.<br>💬 Ask me about Cyber Expert.<br>📫 How to reach me: Google “Memonul Islam Tuhin”.<br>😄 Pronouns: He/Him.<br>⚡ Fun fact: I Love Node.js Backend Developer | AI Automation Expert | AI Assistant Setup & Integration | JavaScript |  Building APIs & Smart Automation Solutions.
+🔭 I’m currently working on Node.js Backend Developer | AI Automation Expert | AI Assistant Setup & Integration | JavaScript |  Building APIs & Smart Automation Solutions.<br>🌱 I’m currently learning JavaScript.<br>👯 I’m looking to collaborate on GitHub.<br>🤔 I’m looking for help with full free to tell me anything—whether it’s a question.<br>💬 Ask me about Cyber Expert.<br>📫 How to reach me: Google “Memonul Islam Tuhin”.<br>😄 Pronouns: He/Him.<br>⚡ Fun fact: I Love Node.js Backend Development | AI Automation Expert | AI Assistant Setup & Integration | JavaScript |  Building APIs & Smart Automation Solutions.
 
 
 ## 🌐 Socials:
